@@ -73,3 +73,5 @@ Joining the board of the Gertrude Foundation and the Accra Art Fair, I am excite
 Art is in itself deeply rooted in the African way of life. There is yet still much to be done in the way of fully comprehending its relevance to the continent's various peoples. In time, it is my hope that our appreciation for it grows. We have a long way to go, yet we can only get there by taking a step at a time. Hopefully, this short interview essay is a resounding motion that will help in getting us where we need to be.
 
 > All photographs were sourced from [unsplash.com](https://unsplash.com/)
+
+_Originally published on March 26, 2020._
