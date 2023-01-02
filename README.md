@@ -1,4 +1,4 @@
-![Cover Image](https://null-assetz.netlify.com/images/blogging/art-interview/art-interview-cover.jpg)
+![Cover Image](./art-interview-cover.jpg)
 
 # Art over Everything
 
