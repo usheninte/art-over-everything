@@ -18,8 +18,6 @@ Her **[website](http://www.veronicamulhall.com/about)** holds details about her 
 
 **⥅** I was really fortunate growing up. My grandfather was a famous Art Director, and painter, himself - and has shown his work at the Metropolitan. I was always surrounded by the arts. My mother, as well, was an actress on Broadway and other soap operas as well. I did grow up in an environment that was really steeped in the arts. I grew up painting and then in my undergraduate degree, I did a minor in fine arts - focusing on oil and acrylic painting. Earlier years, I was really privileged, to have been in a household with great appreciation for the arts.
 
-![Latin Rhythmos](https://null-assetz.netlify.com/images/blogging/art-interview/latin-rhythmos.jpg)
-
 I was a gymnast growing up, but I did not fully connect with dance or movement, until my early twenties. At around 23, I picked up salsa dancing and got really interested in Latin Rhythmos. From 24 to 26, I moved to Mexico and danced in a Latin Dance company, competing in salsa.
 
 Professionally, I have worked primarily in marketing. Typically in an agency, my role has been either that of a creative or a digital strategist.
@@ -31,8 +29,6 @@ Professionally, I have worked primarily in marketing. Typically in an agency, my
 ## ↠ "When you hear the term African art, what comes to mind?"
 
 **⥅** So, big picture - but not to describe it - my immediate thought, is "undervalued on the world market". I find it very interesting that the art sellers of the world, are only now beginning to look at the continent. When you think Latin rhythm, soul, the blues... you don't have to trace it too far back before you get to Africa. In truth, I think that this is something the West doesn't fully account for. Overall, I would describe African art as art created or expressed by African artists, and maybe even possibly in their diaspora - or people that have a connection or root here, that they say is directly influencing their work. We'd probably need to create a big thought board to align all of this. The question of the nature of art is large in itself, and within African art, it creates another dimension of uniqueness. Does art in Africa include African craft goods, and at what point does art remain what it is, and craft stay the same? This would be interesting to discuss, as it is also a question of what art holds value.
-
-![African Art](https://null-assetz.netlify.com/images/blogging/art-interview/african-art.jpg)
 
 For as much as I said that I think visual arts are being undervalued, such as paintings, I still feel that they hold a higher place in society that dance, poetry or written word. Africa as a whole is quite immense, and in my personal experience, a writer once told me that while she had gained a lot of popularity from her work, she is still yet to reap equal financial rewards. This is true in her case, even for works that are distributed in her national school system, almost in the manner of a standard curriculum - which is really interesting. In comparison, it is highly unlikely that a book would be widely read in the western world, and the author would receive little to nothing in return.
 
@@ -54,8 +50,6 @@ In truth, there is a need for that balance of making sure that there is a cultur
 
 With more classical forms of art, one often finds that its modern patronage exists for the purpose of networking or social status, and not for the honest appreciation of the art in itself. There is much value in preserving classical art and making sure those pieces remain. Yet, at what point does art remain relevant to the society in which it lives? This is a common debate.
 
-![Africa on a Globe](https://null-assetz.netlify.com/images/blogging/art-interview/africa-globe.jpg)
-
 In the African context, with regard to dance, there are little fine-art aspects to a lot of modern creations. Truly, there is a really high-threshold to overcoming this. At what point does an artist who paints stop creating paintings of craft - for tourists - and start creating art. One can quite easily define this, yet society has to make this definition as well. A professional pursuit of the arts, ought to be seen by society as a valid career and as one that adds value in return as well.
 
 I do think this is happening. I am very positive about the Arts on this continent, and its scene is maybe one of the most exciting. In West Africa especially, arts and culture are so rich - whether it's painting, sculpting, performance arts, history-keeping through stories, art-dance or music-making - and there is a lot of this present. This does not seem to be disappearing or changing at any time soon.
@@ -73,7 +67,5 @@ Joining the board of the Gertrude Foundation and the Accra Art Fair, I am excite
 ## Final notes
 
 Art is in itself deeply rooted in the African way of life. There is yet still much to be done in the way of fully comprehending its relevance to the continent's various peoples. In time, it is my hope that our appreciation for it grows. We have a long way to go, yet we can only get there by taking a step at a time. Hopefully, this short interview essay is a resounding motion that will help in getting us where we need to be.
-
-> All photographs were sourced from [unsplash.com](https://unsplash.com/)
 
 _Originally published on March 26, 2020._
